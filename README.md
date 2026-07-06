@@ -4,6 +4,9 @@ funky - she/him - 🏴󠁧󠁢󠁥󠁮󠁧󠁿 (sorry, i know)
 
 hi! online, you can call me funky. i like playing video games and watching youtube all day. sometimes i read, draw and write as well. i love love love the horror genre. and yuri. bonus points if something is both. 
 
+broad interests: 
+game design theory, media analysis, metafiction, surrealism, pre-20th century surgery, animals of all kinds, fandom history + culture (usually viewed from a critical angle), cults in the modern/internet age, worldbuilding, character and creature design
+
 fandom-y interests:
 undertale + deltarune, beastars, pluribus, breaking bad + better call saul, doctor who, chainsaw man part 1, pokemon, outlast games, hollow knight + silksong, silent hill games, rain world, blasphemous 1 + 2, beneath the trees where nobody sees, ultrakill, berserk, revolutionary girl utena, hadestown
 
