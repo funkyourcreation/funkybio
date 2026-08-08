@@ -14,4 +14,6 @@ horror stuff i love and reccomend:
 house of leaves, jordan peele's filmography, robert eggers' filmography, alien, the thing, hellraiser, texas chainsaw massacre, our wives under the sea, starve acre, signalis, the righteous, when evil lurks, candyman, sinners, creep franchise, lake mungo, ravenous, saw but only 1 3 6 and 10, darkwood, reanimal, little nightmares but only 1 and 2, monument mythos + nixonverse, gemini home entertainment
 
 i don't think dni lists are useful, i just block or hide when necessary.
+ok i have to add this i guess: if you see me on pt cosplaying or talking abt a character i like who happens to be really evil
+or something i do not support their actions. thought this would be obvious but apparently not so yeah
 
