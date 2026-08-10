@@ -16,4 +16,3 @@ house of leaves, jordan peele's filmography, robert eggers' filmography, alien, 
 i don't think dni lists are useful, i just block or hide when necessary.
 ok i have to add this i guess: if you see me on pt cosplaying or talking abt a character i like who happens to be really evil
 or something i do not support their actions. thought this would be obvious but apparently not so yeah
-
