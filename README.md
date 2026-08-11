@@ -2,17 +2,15 @@
 
 funky - she/him - 🏴󠁧󠁢󠁥󠁮󠁧󠁿 (sorry, i know)
 
-hi! online, you can call me funky. i like playing video games and watching youtube all day. sometimes i read, draw and write as well. i love love love the horror genre. and yuri. bonus points if something is both. 
+hi! online, you can call me funky. i like playing video games and watching youtube all day. sometimes i read, draw and write as well. i love love love the horror genre. and yuri. bonus points if something is both. here's some stuff you might want to know about me when it comes to ponytown!
 
-broad interests: 
-game design theory, media analysis, metafiction, surrealism, pre-20th century surgery, animals of all kinds, fandom history + culture (usually viewed from a critical angle), cults in the modern/internet age, worldbuilding, character and creature design
+- roleplay: nope sorry
+- c+h: you can if you want
+- copying skins: not okay but you can take inspo as long as your skin ends up being different to mine
+- interacting: booping is fine but i might not see it due to being offtab
+- playtime in days: 12 (300+ hrs)
+- dni list: not written out, i will just block/hide people i don't want to interact with
 
-fandom-y interests:
-undertale + deltarune, beastars, pluribus, breaking bad + better call saul, team ico's games, doctor who, chainsaw man part 1, pokemon, outlast games, hollow knight + silksong, silent hill games, hylics 1 + 2, disco elysium, rain world, blasphemous 1 + 2, beneath the trees where nobody sees, ultrakill, berserk, revolutionary girl utena, hadestown
+media i have cosplays from: undertale/deltarune, outlast franchise, hollow knight, rain world, pokemon. this list will be updated often + this is a very small fraction of my interests lol. look on my tumblr if you want to see more of the stuff i like! (it's linked in the github bio)
 
-horror stuff i love and reccomend:
-house of leaves, jordan peele's filmography, robert eggers' filmography, alien, the thing, hellraiser, texas chainsaw massacre, our wives under the sea, starve acre, signalis, the righteous, when evil lurks, candyman, sinners, creep franchise, funny games, lake mungo, ravenous, saw but only 1 3 6 and 10, darkwood, reanimal, little nightmares but only 1 and 2, monument mythos + nixonverse, gemini home entertainment
-
-i don't think dni lists are useful, i just block or hide when necessary.
-ok i have to add this i guess: if you see me on pt cosplaying or talking abt a character i like who happens to be really evil
-or something i do not support their actions. thought this would be obvious but apparently not so yeah
+thanks for reading! don't be afraid to chat w me!
